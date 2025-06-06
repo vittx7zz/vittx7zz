@@ -8,6 +8,4 @@ Meu nome Vitor Hugo jogador de Pou
 - vitor.rodrigues15@escola.pr.gov.br
 - @vitthu7X
 
-![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)
-
-![](https://media.tenor.com/6_FRi9AobI4AAAAi/gokublack.gif)
+![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)![](https://media.tenor.com/6_FRi9AobI4AAAAi/gokublack.gif)
