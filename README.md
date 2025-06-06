@@ -9,3 +9,4 @@ Meu nome Vitor Hugo jogador de Pou
 - @vitthu7X
 
 ![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)![](https://media.tenor.com/6_FRi9AobI4AAAAi/gokublack.gif)
+![](https://media.tenor.com/3MisSv1jlS0AAAA1/goku-and-vegeta-dancing-goku-y-vegeta-bailando.webp)
