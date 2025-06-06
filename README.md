@@ -13,7 +13,4 @@ Meu nome Vitor Hugo jogador de Pou
 
 
 
-
-
-
 ![](https://media.tenor.com/6_FRi9AobI4AAAAi/gokublack.gif)
